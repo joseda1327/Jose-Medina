@@ -120,7 +120,7 @@ I am open to collaborating on:
 ## 📬 Contact Me
 
 * 📧 Email: joseda.medinasalgado@gmail.com
-* 💼 LinkedIn: ()
+* 💼 LinkedIn: (www.linkedin.com/in/josé-medina-salgado-0815533bb)
 * 💻 GitHub: https://github.com/(joseda1327)
 
 ---
